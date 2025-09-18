@@ -35,4 +35,6 @@ If you’re looking to explore everything this darknet marketplace has to offer,
 
 
 
-Update:  14.09.2025 link is live and working
+
+
+Update:  18.09.2025
